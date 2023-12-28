@@ -1,1 +1,1 @@
-Page qui recense toutes mes réflexions scientifiques personnelles.
+Recense divers exposés mathématiques que j'ai imaginés
