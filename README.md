@@ -1,1 +1,1 @@
-Recense divers exposés mathématiques que j'ai imaginés
+Diverses inventions mathématiques pour le fun
